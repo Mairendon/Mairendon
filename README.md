@@ -1,6 +1,6 @@
 
 
-###Hello! 👋
+### Hello! 👋
 I'm Mairen and I'm delighted to meet you. I consider myself a dedicated individual, and I'm passionate about continuous learning and personal and professional growth. I see myself as someone adaptable, detail-oriented, and committed to achieving exceptional results. I enjoy working in teams and have strong problem-solving skills.
 
 My main objective is to contribute to the success of projects, utilizing my experience and skills to make a significant impact and overcome any challenges along the way.
