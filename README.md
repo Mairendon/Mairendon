@@ -1,5 +1,5 @@
 
-![](https://firebasestorage.googleapis.com/v0/b/full-flower-proyect.appspot.com/o/banner%20github.jpg?alt=media&token=8074e2ca-76c0-4883-b5cf-d9ed0f13dcbc)
+![](https://firebasestorage.googleapis.com/v0/b/full-flower-proyect.appspot.com/o/Untitled-1.png?alt=media&token=42c928ef-8a69-4501-b11e-67442869fb9c)
 ### Hello! 👋
 I'm Mairen and I'm delighted to meet you. I consider myself a dedicated individual, and I'm passionate about continuous learning and personal and professional growth. I see myself as someone adaptable, detail-oriented, and committed to achieving exceptional results. I enjoy working in teams and have strong problem-solving skills.
 
